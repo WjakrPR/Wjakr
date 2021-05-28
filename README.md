@@ -1,4 +1,4 @@
-### 반가워요 👋
+### U.P.D.A.T.E
 
 <!--
 **Wjakr/Wjakr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
